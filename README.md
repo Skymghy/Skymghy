@@ -5,4 +5,4 @@
 
 Matéria: Pensamento computacional 💻
 
-https://tenor.com/bVYk9.gif
+!.[_]https://tenor.com/bVYk9.gif
